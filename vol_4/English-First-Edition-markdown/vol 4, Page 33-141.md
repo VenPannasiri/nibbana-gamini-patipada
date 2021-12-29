@@ -312,7 +312,8 @@ Please keep m the mind for "the Law of Dependent-origination" *(Paticcasamupada*
 
 
 
-Again, the factors required for the development of Ear-consciousness are:—-—-—-— 1. The Ear-transparent-element,  
+Again, the factors required for the development of Ear-consciousness are:—-—-—-— 
+1. The Ear-transparent-element,  
 
 2. Sense- object of sound,  
 2. Associated Mental concomitants ( like "Contact" = *Phassa),*  
@@ -1845,7 +1846,13 @@ And these matters are taken up with the Insight-knowledge of a meditator by thei
 ## **PAGE-137** 
 
 
-The Delimiting Materiality (== *Ak'asa dhatu)* is the space among the groups of matter. The Materiality of lntimation(= *Vim'= atti nlpa*) are peculiar nature *(= VikSra)* of the Consciousness produced matters, and Materiality as Alter-ation( Lightness, Softness and *Wieldiness=LahutS, miiduta, kamma?(= atd)* are peculiar nature *(= Vikdra)* of Consciousness, Temperature and Nutriment produced(= *Cittja, Utuja, A)iSraja)* 'matters. Materialities as Growth, Continuity, Aging and Impermanence(=L= acaiya, Santaft', Jarat5, Anfccata) are the arising, standing and passing-away of the Real-materialities. So, all these (10) kinds of matter can not exist without any Real-materialities. They are not produced by the(4)Conditions like Action, Consciousness etc etc. So, the meditator can not take up the Non-real matters with Insight-knowledge by their own characteristic. He can only discern these non-real matters along with the Real-matters.  
+The Delimiting Materiality (== *Ak'asa dhatu)* is the space among the groups of matter. 
+The Materiality of lntimation(= *Vim'= atti nlpa*) are peculiar nature *(= VikSra)* of the Consciousness produced matters, and Materiality as Alter-ation( Lightness, Softness and *Wieldiness=LahutS, miiduta, kamma?(= atd)* are peculiar nature *(= Vikdra)* of Consciousness, Temperature and Nutriment produced(= *Cittja, Utuja, A)iSraja)* 'matters. 
+Materialities as Growth, Continuity, Aging and Impermanence(=L= acaiya, Santaft', Jarat5, Anfccata) are the arising, standing and passing-away of the Real-materialities. 
+So, all these (10) kinds of matter can not exist without any Real-materialities. 
+They are not produced by the(4)Conditions like Action, Consciousness etc etc. 
+So, the meditator can not take up the Non-real matters with Insight-knowledge by their own characteristic. 
+He can only discern these non-real matters along with the Real-matters.  
 
 
 
@@ -1854,10 +1861,13 @@ The Delimiting Materiality (== *Ak'asa dhatu)* is the space among the groups of 
 The eye, ear, nose, tongue and body, all (5) kinds of matter take up their respective sense-object;like sight, sound, smell, taste and touch. So, these matters are as clear as mirror and known as *u* **Transparent-element *(=Pascida rupa).*** Other (23) kinds of matters do not take up the sense-objects and oughtn't • to be transparent and clear. So, these are opaque and** 
 
 **Non- transparent-elements (= ?1 *pcisada rupa )*.** ( Visuddhi-2-81 ) 
+
 ## **Pay Special Attention for Following Facts** 
 Take care of the translation of *"Adatalam viya vippasannatta'* -which means 
 
-that:- "Transparent-elements are as clear as mirror. It is very important fact in Discernment of Materiality. In the Transparent-elements ie:- (5) kinds of clear matters; 
+that:- "Transparent-elements are as clear as mirror. 
+It is very important fact in Discernment of Materiality. 
+In the Transparent-elements ie:- (5) kinds of clear matters; 
 
 1. Eye transparent-element (= Cakkhupasada ) exists only in the Eye.  
 1. Ear transparent-element (=Sotapas'ada ) exists only in the Ear.  
@@ -1869,17 +1879,24 @@ that:- "Transparent-elements are as clear as mirror. It is very important fact i
 ## **PAGE-138** 
 
 
-If a meditator takes up the 4 Basic-elements in his body to set up concentration (= *Samadh=*  through the path-way of Meditation of Element *(= Dl-iatu-kammatthana)*, he will see very clear (as clear as a mirror) object when he reaches or near to **reach** the "Neighbourhood Concentration ° Access Concentration (= *Upacara-Samadh= .* Before reaching the Insight-knowledge of Ultimate reality, and before the breakdown of Compactness of Materiality (s- *Ghana* ), the (5) kinds of Transparent-matter are seen **as** solid block of matters which looks like a clear mirror. Since, the Body transparent matters are dispersed throughout the body, the meditator will see these matter **as** solid clear block, before the breakdown of compactness of the matters. The nature seen by the meditator with the Knowledge of Right view (= *Samma ditthmhana)* is similar to above descriptions written in the Commentary and the Subcommentary (= somewhat like similarity of the water, of the *Ganga* river and *Yamuna* river which can be mixed ). And, the nature seen **by** the meditator also coincides Udth the teaching of the Buddha, the Perfectly Self-enlightened One (= *Sammasambuddha)* in his °*Dhammasangam'Pali-* scripture" (= like similarity of hot and cold water, when mixed ); which is described below:——— 
+If a meditator takes up the 4 Basic-elements in his body to set up concentration (= *Samadh=*  through the path-way of Meditation of Element *(= Dl-iatu-kammatthana)*, he will see very clear (as clear as a mirror) object when he reaches or near to **reach** the "Neighbourhood Concentration ° Access Concentration (= *Upacara-Samadh= .*
+ Before reaching the Insight-knowledge of Ultimate reality, and before the breakdown of Compactness of Materiality (s- *Ghana* ), the (5) kinds of Transparent-matter are seen **as** solid block of matters which looks like a clear mirror. 
+ Since, the Body transparent matters are dispersed throughout the body, the meditator will see these matter **as** solid clear block, before the breakdown of compactness of the matters. 
+ The nature seen by the meditator with the Knowledge of Right view (= *Samma ditthmhana)* is similar to above descriptions written in the Commentary and the Subcommentary (= somewhat like similarity of the water, of the *Ganga* river and *Yamuna* river which can be mixed ). 
+ And, the nature seen **by** the meditator also coincides Udth the teaching of the Buddha, the Perfectly Self-enlightened One (= *Sammasambuddha)* in his °*Dhammasangam'Pali-* scripture" (= like similarity of hot and cold water, when mixed ); which is described below:——— 
 
-The nature that, all the Eye, the Ear, the Nose, the Tongue and the Body are the transparent-elements -= -clear matters *(=  Pasada-mpa*), arise de-. pending on the Basicelements *(•= Maha-bhuta)* of the same unit-group of Matters, is pointed out by the Buddha in clear and distinctive way, And these are the solemn utterance (= *Mukhapatha)* of the Buddha after seeing and knowing with Self-enlightenment. If one try to discern the Delimiting Materiality (= *AkSsa dhatu)* in this clear, homogeneous object, he will first **see** the particles of unit-groups of matters. . .  
+The nature that, all the Eye, the Ear, the Nose, the Tongue and the Body are the transparent-elements -= -clear matters *(=  Pasada-mpa*), arise de-. pending on the Basicelements *(•= Maha-bhuta)* of the same unit-group of Matters, is pointed out by the Buddha in clear and distinctive way, And these are the solemn utterance (= *Mukhapatha)* of the Buddha after seeing and knowing with Self-enlightenment.
+ If one try to discern the Delimiting Materiality (= *AkSsa dhatu)* in this clear, homogeneous object, he will first **see** the particles of unit-groups of matters. . .  
 
 
 
-6) (5) Transparent-elements, 'Female and Male Sex-materiality and Life-faculty matter, altogether, (8) kinds of matter possess the nature of control over the respective matters; these are known as "Control-materiality" (= *Indriya rupa).* (Refer to Faculty- condition -- *Indnyapaccaya* as well). The remaining (20) kinds of materialities do not possess the nature of control and known as *"Anindriya rupa"* (=Non-control materiality). (Visuddhi-2-81. ) 
+6) (5) Transparent-elements, 'Female and Male Sex-materiality and Life-faculty matter, altogether, (8) kinds of matter possess the nature of control over the respective matters; these are known as "Control-materiality" (= *Indriya rupa).* (Refer to Faculty- condition -- *Indnyapaccaya* as well). 
+7) The remaining (20) kinds of materialities do not possess the nature of control and known as *"Anindriya rupa"* (=Non-control materiality). (Visuddhi-2-81. ) 
 
 
 
-6) The-Volitional action considers the materiality as a result of it like "This materiality is the result of my action". So, the Action produced materiality is known as " *Upadinna=  Upadinna rupa".* Other rn. att. ers such as Consciousness, Temperature and Nutriment produced matters are not the result of the Volitional action and known as *"Anupddinna = Anupadinna rupa1.* (Visuddhi-2-81. ) 
+8) The-Volitional action considers the materiality as a result of it like "This materiality is the result of my action". 
+9) So, the Action produced materiality is known as " *Upadinna=  Upadinna rupa".* Other rn. att. ers such as Consciousness, Temperature and Nutriment produced matters are not the result of the Volitional action and known as *"Anupddinna = Anupadinna rupa1.* (Visuddhi-2-81. ) 
 **
 
 ## **Classification of Materialities in Group of Three** 
@@ -1917,6 +1934,7 @@ impingemei-it. So, these are ***u Anidassana-appatigha-rupd".*** (In this case, 
 
 2. . The Action, Consciousness and Nutriment produced matters are non-tempera-• ture produced (=- ***Anutuja rupa)*** matters.  
 2. The (4) kinds of Materiality as Characteristic are known as ***" Nevautujam na-anutujam* rupa\*\*.** (Visuddhi-2-81. ) 
+
 ## **Classification of Materialities in Group of Four** 
 1. *Ru. payat. ana "* The color-base (= sense of sight) is the sense-object of Eyeconsciousness. So, it is known as "dittha".  
 1. *SaddS. yatana =* The sound-base is the sense-object of Ear-consciousness. So, it is known as ***"SutcC.***  
